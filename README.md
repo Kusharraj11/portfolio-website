@@ -8,4 +8,6 @@ Would love your thoughts — and always up for connecting, collaborating, or jus
 
 
 super app - https://iamkrk.super.site/
-notion - https://serious-lemongrass-85b.notion.site/Hi-I-am-Kushar-Raj-Kashyap-21bcbe77d18f80e6a41ce0015c63443d?pvs=143
+
+
+👉👉👉to copy it just click on duplicate as template on notion - https://serious-lemongrass-85b.notion.site/Hi-I-am-Kushar-Raj-Kashyap-21bcbe77d18f80e6a41ce0015c63443d?pvs=143
